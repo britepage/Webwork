@@ -1,5 +1,4 @@
 # Webwork of Jason Smith
-Websites I have worked on.<br>
 <a href="https://lancelawkc.com">https://lancelawkc.com</a><br>
 <a href="https://getzboxtv.com">https://getzboxtv.com</a><br>
 <a href="https://drtorpor.com">https://drtorpor.com</a><br>
