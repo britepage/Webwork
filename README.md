@@ -3,7 +3,6 @@
 <a href="https://getzboxtv.com">https://getzboxtv.com</a><br>
 <a href="https://drtorpor.com">https://drtorpor.com</a><br>
 <a href="https://porta-stor.com">https://porta-stor.com</a><br>
-<a href="https://forthemix.com/ftm-drumstar80/">https://forthemix.com/ftm-drumstar80/</a><br>
 <a href="https://flintlockdental.com">https://flintlockdental.com</a><br>
 <a href="https://boyeslawn.com">https://boyeslawn.com</a><br>
 <a href="https://www.peculiarparkplacervpark.com">https://www.peculiarparkplacervpark.com</a><br>
